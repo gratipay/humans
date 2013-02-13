@@ -1,0 +1,1 @@
+Humans aren't resources.
